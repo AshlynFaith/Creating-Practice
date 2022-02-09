@@ -1,5 +1,5 @@
 
-How to Make Oatmeal with Pear and Almonds in My Kitchen (Figure 4)
+# How to Make Oatmeal with Pear and Almonds in My Kitchen (Figure 4)
 This task provides a quick and easy vegan breakfast recipe to help you make oatmeal even better!
 Tools 
 *The following can be found in the cabinet left of the refrigerator and the drawer beside the sink*
